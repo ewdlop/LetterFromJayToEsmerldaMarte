@@ -3,6 +3,8 @@
 
 We need to save the kid. They got brainwashed by the Naturo manga.
 
+They are kid crying out for helping acting like adults are bullying them.
+
 ~You know I can hear you?~
 
 ~For poopoo..I meant popo: THIS IS COMMUNITY TOOTLALALLTLTOOTLAOTLTOLAOTLTLY SAFE~
